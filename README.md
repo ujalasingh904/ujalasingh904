@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **singhujala2019@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/18e9gYW6nE2UoEl0r3smZIPKW1w-UfHPN/view?usp=drive_link](https://drive.google.com/file/d/18e9gYW6nE2UoEl0r3smZIPKW1w-UfHPN/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/18CQEYRXJj_ytX5toQTFZ1KiI7YN9r9HW/view?usp=drive_link](https://drive.google.com/file/d/18CQEYRXJj_ytX5toQTFZ1KiI7YN9r9HW/view?usp=drive_link)
 
 
 
